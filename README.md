@@ -1,2 +1,0 @@
-# Ganesh-invitation
-Ganesh
